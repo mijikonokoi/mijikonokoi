@@ -1,4 +1,4 @@
-${\color{purple} thank you for checking my profile, izae desu / i'm izae.}$.
+${\color{purple} thank‎ you‎ for‎ checking‎ my‎ profile,‎ izae‎ desu‎ /‎ i'm‎ izae.}$.
 
 
 <img width="498" height="281" alt="najia-brawl-stars (1)" src="https://github.com/user-attachments/assets/106acc22-89d7-4a1a-803f-b4772e9dfe27" />
